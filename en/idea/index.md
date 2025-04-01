@@ -1,0 +1,61 @@
+# Ideas
+
+- Ria gets a tiny bit of clothing to make her different than most normal Ardoni. No longer raised by Ardoni alone.
+- “Warriors” 2020 edition would be a great trailer song for Season 3 tbh. 
+- The reveal of Abbigail on the dragon could be like a dark backdrop. Lightning strikes behind, revealing. Could work as a great trailer opener. But she’d be glowing… and how black can I get a sky really…
+- Abbigail pulls a bow on Allister as he gets the crown. She doesn’t kill him though. He stabs her.
+- Igneous fighting Malakai. He gets back up even with one arm and tries to continue fighting. Maybe even as he’s being hit he’s having some memories flash before him.
+- In Season 3, Hubris’ ears should be medium length. Many skins should have a makeover for S2. What if Ria actually had like a little scarf or robe or something, unlike most Ardoni. 
+- Maybe make some sort of Origins video eventually that shows each race and a bit about them.
+- “If you really knew me… you’d wish you didn’t.”A character talks about how he never attacks another strong type of people. “Yeah you might kill one, hell you might even kill two. But eventually they’ll win.” Talks about how he’s smarter and chooses weaker opponents so he wins all the time.
+- People always worry about not making their characters annoying, but what if I intentionally had someone who was just straight up annoying and everyone gets annoyed and eventually they deal with him in a satisfying way.
+- I need to stop making all characters "nice" and "good" if they’re on the protagonists side. I need to make people that are annoying, or jerks, or teachers that don’t care about new students because they teach an advanced group and whatnot. To make things feel more real and create tension. Then it’d be cool to see when these characters actually do have to work with the Tidesinger later, like a teacher who had always been a douche. 
+- Relating to schools, at one point when introducing the magic, “Humans once called it magic, or sorcery. Now they believe they understand it, and call it ____. We call it ____.” basically have it so humans give the magic a different, more scientific name. But the Ardoni understand it more like the force from star wars- just a universal quality, more organic and not able to be scientifically described. It can’t really be predicted, because in fact a lot of the magic stuff is alive, as will be revealed far into the series.
+- Humans can use spectrometry to figure out a bit about the songs. Maybe sound waves as well?
+- Would be neat for someone to have some sort of extremely powerful weapon, or maybe they’re just a really good fighter or something, but you never see them use the weapon or fight for a really long time, thus building the hype for when they finally draw their weapon for a fight. (PYTHUS)
+- One of the pervasive themes should be that mines have all been mostly exhausted from the previous wars. Resources and ores are in high demand, and people have to travel further and dig deeper, thus increasing the drama and difficulty of the story. It’s not just some happy golden age. Ores are valuable.
+- A compromise on how to hold weapons. I don’t want to show them on their sides or back all the time or it’ll get in the way, but I don’t want them just to "pop" out completely MC style. I can have their hand move towards where their weapon would be (on the side or back), then it sorta pops in, then they draw it. That way you still get the drawing animation.
+- Lucan and Niika are sorta like Jamie and Brienne in GoT when they’re first traveling maybe?
+- When Nether army takes over, some biomes start getting cruddy looking. Lava pools, netherrack, stone and clay. Outside of Nether-controlled cities have skulls on posts and stuff.
+- “I don’t want to hear the name Tidesinger one more time. His name is Achillean Nestoris. He came from a fishing town north of Hydraphel.”
+- Abbi is wondering when she’ll get her reward. Vulcannus says she’ll get her reward once the Nether army is destroyed in the overworld. Also she can’t just be "born into" being an Enderknight. She has to earn it. And now that the nether army is becoming victorious and she’s losing Enderknights, she has to pass a special test: the trials of the enderknights. 
+- When Abbigail confronts mercenaries at the house, she should be like “That doesn’t belong to you.” And they’re like “It doesn’t belong to you either.” And they have a bit more of a confrontation rather than her just pulling out her sword and getting hit. 
+- I have to make sure in some of the cool trailer shots (like Abbigail holding the dragon egg above her) that you don’t see dead bodies (Jalkar) in the shot and spoiling too much lol.
+- When Ria says that she’s going to learn prime songs at the first Ardoni temple, they’re like yo that’s where we just got attacked but she’s like yo that’s the last place they’ll expect us, and it was mostly vacant beforehand anyway. No one really lives there.
+- When redstone guy "locates" prime songs, it just gives him a direction and a distance, he needs map quickly to figure out where those points are. 
+- Walls of Time could be written a bit more poetically.
+- Sulliman is literally a slob. He’s eating while people are talking, has his foot up on the table. Then when people are waiting for him to respond he’s just like “yeah yeah I got it!” even though he never responded.
+- The Deathsinger needs to always have tense confrontations with the Tidesinger. When he goes to Ataraxia in season 3 he should be looking for TS a lot but he’s not there. That way there is a lot of Derp in every episode. “Find them all” kinda thing.
+- Need to get a good shot of Vulcannus walking with Abbigail when he’s holding her and carrying her to the ender crystal. Would look like she’s dead in the trailer.
+- Ardoni can channel songs through their weapons. Staves are more effective than swords, so many Ardoni have staves. The masters of each clan have a special staff with their clan color in it. Deathsinger can sometimes fight with both his sword and staff simultaneously, or just one at a time. 
+- Derps of War. Swap out skins for Derp-faces, use original voice, music, sounds, etc.
+- Cool shot of Deathsinger with Sulliman’s house partially on fire behind him in S2E9.
+- When Niika is hanging out in Riverstead maybe she sees a couple together or a family or something which makes her feel a bit more lonely.
+- Thalleous tells Senn not to reveal Prime Song to anyone. 
+- Enderdragon heads in the Nether city, and Wither heads in the End city. Trophies of enemies defeated.
+- 1mill sub teaser, circle around a Song while the camera passes around the pillars, show shots of factions followed by shots of their enemies, at the end the Deathsinger walks up and grabs song?
+- Stone weapons more common in Nether, iron is rare.
+- Iphegenia disease.
+- Thalleous is giving Senn and Ria Songs as if they’re drugs. Don’t tell your dad. In my day all the kids your age were doing Songs.
+- Small featurettes on things like Enchanting, Songs, which is both an opportunity to talk about them as well as do vfx tests.
+- Speed videos on animation loops
+- Timber taken to Ataraxia. Small stables/city area on the outskirts. Is lost during attack on Ataraxia, flees. 
+- Nitsuke is from rich family in Hydraphel, left because sheltered life. Pretty socially awkward but very curious and interested in things, quirky, forgetful. It’s her first mission as Chronicler. Kiyoshi takes this as an insult (but doesn’t tell her that.) 
+- People should be walking donkeys and mules around towns.
+- Songs of War but Abbigail’s a bad archer. She shoots at the pigs and misses and scares them. Shoots at Jalkar but hits horse. Misses someone else and arrow hits and kills Denny.
+- After events of SoW, Ria mysteriously leaves. Tries to get over Prime Songs. Says she feels empty, no longer wants to use them. Val, as someone who’s trained in Songs, tries to talk to her about this. Senn has been studying them, trying to figure out their harmonies. Decides to put it away at the end. Makes sense because Senn’s all about learning to use the powers, Ria’s about not. Main villain is about how these powers are bad, destroys prime songs. 
+- Something later with the Aether dimension. Seems nice at day, dangerous at night.
+- Mt Velgrin in the Great War past version should have like lava ponds so flames can come off and stuff.
+- YTPs: Hidden among the shadows of stark ice fields, deserts of ice fields, frozen within the deserts.
+- Random idea about the trailer- I don’t need to show Thalleous when he says he believes that time is over, I can just show something that depicts that. Or not because it’d be nice to see the first reveal of dialog to voice.
+- If crossing badlands, show some spiders. Heck show spiders anywhere.
+- Update any skins for season 2? Abbigail probably looks a bit different.
+- Could do a more 2d side-on animated mini-adventure series between seasons. 
+- Jag story, female jag is kinda bad. They find more Jags, a super old one. She kills him. She doesn’t just stay rogue, but tries to convince other Jags to fight alongside her.
+- In Grek Spinoff, think that the Jags are in uncharted islands, they’re actually beyond it, use clues in uncharted islands to find their spot (that way I can just make a whole new world for it). While there, learn that one of the reasons they left was to hunt bigger more dangerous game, stuff that doesn’t exist in Ardonia anymore. Only way to survive. Takes Grek out to fight giant creates or something. Then there’s like some super giant one of the creatures that they have to run from when it shows up because it’s way too big and dangerous. Isn’t shown, but a lot of clues are shown such as shaking, maybe shadows, water/lava wake. At the end, Grek is pushed back to this area when hunted. Uses that to help kill off many of the Jags.
+- The girl Jag he first meets he bonds with a lot along the first half of the story. Maybe he and her work together to fight their big enemy together and they make a good team and it’s kinda cute. 
+- That way it’s more of a big deal when she turns. If/when she challenges the main Jag leader and kills him, it’s a big deal. She gets all the others to join her to return to Ardonia. 
+- Her death near the end should be pretty emotional for Grek. Maybe eventually she gets really injured and is like close to death. **Regrest** a lot of what she did. Is like “I’m sorry” and stuff. He picks her up and hold **sher** and says he’s sorry too or something, so you think he might be helping her, but he kills her, and is sad about doing so. Maybe he leaves something behind on this place and doesn’t want to return. His weapon? A weapon she gave him (that he killed her with?)
+::: warning
+Some word may have spelling issues
+:::
