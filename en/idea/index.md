@@ -56,6 +56,6 @@
 - The girl Jag he first meets he bonds with a lot along the first half of the story. Maybe he and her work together to fight their big enemy together and they make a good team and it’s kinda cute. 
 - That way it’s more of a big deal when she turns. If/when she challenges the main Jag leader and kills him, it’s a big deal. She gets all the others to join her to return to Ardonia. 
 - Her death near the end should be pretty emotional for Grek. Maybe eventually she gets really injured and is like close to death. **Regrest** a lot of what she did. Is like “I’m sorry” and stuff. He picks her up and hold **sher** and says he’s sorry too or something, so you think he might be helping her, but he kills her, and is sad about doing so. Maybe he leaves something behind on this place and doesn’t want to return. His weapon? A weapon she gave him (that he killed her with?)
-::: warning
+::: tip
 Some word may have spelling issues
 :::

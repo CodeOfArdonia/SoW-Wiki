@@ -1,0 +1,23 @@
+# Old Ideas
+
+- Lot of old ideas about Hawken. Initially instead of him dying I was considering him betraying Thalleous. Like he gave away that Thalleous was coming. Instead I preferred the idea of seeing a character killed off as it gives a bit better taste of the tone of the series, showing how even important characters can die. He was also a girl for a while.
+- Initially Galleous scene where he sorta accepted his death, left blacksmith. 
+- Timber left Senn/Igneous before Ataraxia. Found again in Sendaria.
+- Songs were original the fragment things. You could only have one song, but you needed all four fragments. Old Song design was way worse. Four fragments of a single song, you could have as many songs as you want. Difficult to explain, fragments made each song less valuable, we had to change it when we built the shrines. 
+- Niika had like, something from a previous lover who was killed by the Necromancers. Seemed a bit forced, turning Niika into just a romance character.
+- Kiyoshi had a scene where he was going to go meet with his family. We could see the dynamic his father had with him. Wasn’t really room for it, and seemed a bit forced.
+- Val was going to die
+- Senn/Ria up in the tree instead of sword fighting
+- Abbigail’s name was “Amy,” full name being Amethyst.
+- Sam was going to have one grey eye like many huskies do. When Luna hatched she’d have one white eye too, as if Sam’s spirit somehow transferred to Luna. Made it seem a bit more like some sacrifice was required lol.
+- Onyx and Masani were Nitrox and Naia
+- Senn and Ria were going to be introduced in the tree above Sendaria, not sword-fighting. It felt very bland and didn’t reveal much about their relationship.
+- Senn training at Ataraxia was initially going to be more of a traditional school setting. There were planned to be multiple teachers and many students. Ultimately there was no way I could tell that story without making it a separate spinoff series so it became more one-on-one with Galleous.
+- Grim was initially human, other UL member. Supposed to die in Season 1. 
+- Senn something about writing in a diary. Ria and Senn were each going to write in their dairies and compare when he got back. He would have found the one Ria wrote when he returned in Season 3. 
+- Magnorite birth scene cut. 
+- Ideas such as Hawken betraying Thalleous, he was the one who lured the Voltaris trap right away.
+- Old idea from when it was still kinda sci fi. They arrive at Ataraxia during the rain, and Ataraxia back then was a lot higher up (above clouds even.) So they arrive and don’t’ see anything at all because it’s above the rain clouds. Then they find the grav lift and go up to above the rain and see it a nice clear sunny day up there.
+- Guardian scene was initially being attacked by mobs/creepers. They burrow into the wall to hide, lose Timber here. Then it became Timber simply leaving them here.  
+- “We’re not afraid of youuu”
+- Ria gave Senn a book and vis versa to read eachother. He would have found it.
